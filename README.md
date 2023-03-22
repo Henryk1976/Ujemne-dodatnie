@@ -1,0 +1,1 @@
+# Ujemne,dodatnie
